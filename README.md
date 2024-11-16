@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MarionnettisteA, a student in 3D.
+- 👀 I’m interested in chara design, video games, VFX and animations, but also, I write novels, play violin, listen to music, draw and sew clothes.
+- 🌱 I’m currently learning the basics to be able to create animations and video games by myself.
+- 📫 How to reach me ? I have a mail adress.
+- 😄 Pronouns: She/Her.
